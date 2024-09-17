@@ -5,7 +5,7 @@
 
 - 📫 Reach out to me through **sachinjayadev18@gmail.com**
 
-- 📄 My Resume [https://drive.google.com/file/d/1PNKUleJTjQB1hSEEIKoKG_z0hVf61mS2/view?usp=sharing](https://drive.google.com/file/d/1PNKUleJTjQB1hSEEIKoKG_z0hVf61mS2/view?usp=sharing)
+- 📄 My Resume [https://drive.google.com/file/d/1PrfdXUwdE-SIKbBIZbhbpW2lz1W2ldpH/view?usp=drivesdk](https://drive.google.com/file/d/1PrfdXUwdE-SIKbBIZbhbpW2lz1W2ldpH/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
