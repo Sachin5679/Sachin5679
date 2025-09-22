@@ -3,9 +3,7 @@
 
 - 👨‍💻 My Portfolio Website [https://sachinjayadev.vercel.app/](https://sachinjayadev.vercel.app/)
 
-- 📫 Reach out to me through **sachinjayadev18@gmail.com**
-
-- 📄 My Resume [https://drive.google.com/file/d/1PrfdXUwdE-SIKbBIZbhbpW2lz1W2ldpH/view?usp=drivesdk](https://drive.google.com/file/d/1PrfdXUwdE-SIKbBIZbhbpW2lz1W2ldpH/view?usp=drivesdk)
+- 📫 Reach out to me through **sachinjayadev2025@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
